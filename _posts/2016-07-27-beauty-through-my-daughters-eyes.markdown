@@ -8,6 +8,8 @@ categories: parenting
 
 Over the last few months I’ve been hearing more and more friends and family members telling me I talk myself down too much. They say I’m too harsh about myself and am nothing like the person I seem to think I am. Sadly it was a critique about the things I say about myself and the alarming frequency I say them.
 
+<!--more-->
+
 I don’t quite know when it started. I guess I wasn’t a pretty child and people made fun of me for being so dark. I also went through puberty at a really young age, way before sex education was taught and so I didn’t develop a particularly positive self-image, being different from all my friends and not understanding why.
 
 I say these things because I’ve noticed my daughter putting herself down lately. At 2.5 years old I’ve started to hear her say she’s not pretty and she’s not the cutey pie I’ve labelled her. The first time I heard her put herself down, it broke my heart. I tried to convince her she was every bit as perfect as I told her and believed she was. However she just got mad and defensive and shouted me down. Any further attempts to calm her down led to tears.

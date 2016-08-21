@@ -19,3 +19,7 @@ github_username:  fola-lewis
 
 # Build settings
 markdown: kramdown
+
+permalink: pretty
+
+excerpt_separator: <!--more-->

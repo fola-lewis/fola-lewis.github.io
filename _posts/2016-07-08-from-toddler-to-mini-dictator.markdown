@@ -10,6 +10,8 @@ categories: parenting
 
 Pumpkinella is now 2 years and 7 months old and has really come into her own. We can have sensible conversations where we’ll discuss the things she’d like to eat, what games she’d like to play and how her day has gone when I pick her up after returning from work.
 
+<!--more-->
+
 Or fun things she’d like to do during the day. During these conversations I’m amazed at her rate of development. She’s already worked out sarcasm, to my detriment and often makes comments where I’m left wondering which adult she’s learnt them from. In truth I’m embarrassed to say she sounds just like me though so it just makes me laugh.
 
 Having raved to others that Pumpkinella is such a sweet child and there’s no ‘terrible’ in her 2nd year of life; I’ve recently been sent crashing down to earth with a thud as my daughter has altered her behaviour to make sure she always gets what she wants.
